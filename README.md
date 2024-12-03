@@ -1,4 +1,4 @@
-▎Iced Coconut Coffee
+▎Iced Coconut Coffee Recipe 
 
 This recipe delivers a refreshing and creamy iced coffee experience with the delightful touch of coconut milk. 
 It's perfect for a hot summer day or any time you crave a cool, flavorful pick-me-up.
